@@ -5,4 +5,4 @@
 dni 
  <p align = center> zoophiliac, homophobic, transphobic . otherwise feel free to int
 <p align = center> 
-  [rentry](https://rentry.co/reaves)
+  https://rentry.co/reaves
